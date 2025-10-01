@@ -15,7 +15,7 @@
 - 💥 Expert in breaking things (in production of course)  
   
 
-- 🤖 Fun fact: I don't use AI  
+- 🤖 Fun fact: AI is overrated  
   
 
 <br/>  
